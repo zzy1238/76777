@@ -39,4 +39,4 @@
 4. 总结：合法观看，安全无忧
 在互联网时代，免费观看日本AV已经不再是难事，但在享受这些内容的同时，务必确保选择合法、安全的观看平台。通过选择权威、合法的平台、避免不良广告和病毒、并精确筛选自己喜欢的内容，您可以获得更高质量的观看体验，享受愉快的在线时光。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/zzy1238/76777 ）</span>
